@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AlexNine-99
 - 👀 I’m interested in aviation, music
 - 🌱 I’m currently learning webdev
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on {not sure right now}
 - 📫 How to reach me: email
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Mint icecream FTW
